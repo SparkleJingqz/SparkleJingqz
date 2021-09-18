@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SparkleJingqz
-- 👀 I’m interested in ...
+- 👀 I’m interested in Everything
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me sparkleqqq@gmail.com
